@@ -1,1 +1,1 @@
- will be rich in 2024
+ will be rich in 2024 in Jesus name:
